@@ -1,1 +1,1 @@
-+![](http://plyojump.com/classes/pre_1945.php)
++![](http://plyojump.com/classes/images/computer_history/bug.jpg)
